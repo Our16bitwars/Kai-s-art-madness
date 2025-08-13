@@ -13,4 +13,4 @@ I got bored idk </3
 
 
 
-More art dropping here soon[ART MADE BY ME!]
+[ALL ARTS HERE IS MADE BY ME!]
