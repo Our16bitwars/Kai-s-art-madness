@@ -11,6 +11,13 @@ I got bored idk </3
 
 
 
+#Art 3 :: sketch bake no hana aah ruko
+
+
+
+
+<img width="689" height="551" alt="【🔔✿🔫{𝑩𝒂𝒌𝒆 𝒏𝒐 𝒉𝒂𝒏𝒂-𝑵𝑨𝑲𝑰𝑺𝑶】_20250814154355" src="https://github.com/user-attachments/assets/c450a7d0-8546-4429-9e8b-b7766e41474e" />
+
 
 
 [ALL ARTS HERE IS MADE BY ME!]
