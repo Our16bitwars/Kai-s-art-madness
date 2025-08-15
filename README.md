@@ -6,7 +6,7 @@
 I got bored idk </3
 
 
-#Art 2 ruko looks scared doesn't she,,,,
+# Art 2 ruko looks scared doesn't she,,,,
 
 <img width="612" height="347" alt="無題6514_20250813133308" src="https://github.com/user-attachments/assets/e6ece149-d0f9-4ba7-9d2d-07dec22e4b9c" />
 
@@ -14,7 +14,7 @@ I got bored idk </3
 
 
 
-#Art 3 :: sketch bake no hana aah ruko
+# Art 3 :: sketch bake no hana aah ruko
 
 
 
@@ -23,4 +23,4 @@ I got bored idk </3
 
 
 
-[ALL ARTS HERE IS MADE BY ME!]
+ # [ALL ARTS HERE IS MADE BY ME!]
