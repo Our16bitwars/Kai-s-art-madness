@@ -24,3 +24,9 @@ I got bored idk </3
 
 
  # [ALL ARTS HERE IS MADE BY ME!]
+
+
+
+# Im burn out after ts
+
+<img width="2340" height="1308" alt="˗ˏˋ ★ ˎˊ˗_20250826135817" src="https://github.com/user-attachments/assets/3c21bedc-17d3-48bb-8cd6-841f2b1f0b5d" />
