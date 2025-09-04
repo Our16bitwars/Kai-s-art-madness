@@ -30,3 +30,8 @@ I got bored idk </3
 # Im burn out after ts
 
 <img width="2340" height="1308" alt="˗ˏˋ ★ ˎˊ˗_20250826135817" src="https://github.com/user-attachments/assets/3c21bedc-17d3-48bb-8cd6-841f2b1f0b5d" />
+
+
+# Non breath oblige gng
+
+<img width="2340" height="1308" alt="無題6537_20250904164615" src="https://github.com/user-attachments/assets/bc16d139-4027-4119-a176-5861eb0506c8" />
