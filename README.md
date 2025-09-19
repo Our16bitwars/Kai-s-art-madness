@@ -35,3 +35,10 @@ I got bored idk </3
 # Non breath oblige gng
 
 <img width="2340" height="1308" alt="無題6537_20250904164615" src="https://github.com/user-attachments/assets/bc16d139-4027-4119-a176-5861eb0506c8" />
+
+
+# Tondemo disaster incoming!!! (Requested)
+
+
+<img width="557" height="429" alt="Untitled138_20250919121227" src="https://github.com/user-attachments/assets/e166b84e-f885-4101-bfb7-fc350462cb49" />
+
