@@ -42,3 +42,12 @@ I got bored idk </3
 
 <img width="557" height="429" alt="Untitled138_20250919121227" src="https://github.com/user-attachments/assets/e166b84e-f885-4101-bfb7-fc350462cb49" />
 
+
+
+# Dont ask.
+
+
+<img width="1290" height="733" alt="Untitled181_20251015142827" src="https://github.com/user-attachments/assets/a951c58b-6cbd-4a83-ad6f-4c5784d9de72" />
+
+
+
