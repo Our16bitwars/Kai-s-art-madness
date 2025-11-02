@@ -1,3 +1,13 @@
+# Gift for rams ^w^
+<img width="2250" height="3000" alt="Untitled211_20251102144944" src="https://github.com/user-attachments/assets/331ad6fe-0119-4258-b2c1-c1cc604d2014" />
+
+
+
+
+
+
+
+
 #
 
 
