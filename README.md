@@ -61,3 +61,9 @@ I got bored idk </3
 
 
 
+
+# Wtf the difference
+
+![IMG_1555](https://github.com/user-attachments/assets/94d2a1d5-d32e-4064-8809-105f968f62b2)
+
+
