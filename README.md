@@ -67,3 +67,12 @@ I got bored idk </3
 ![IMG_1555](https://github.com/user-attachments/assets/94d2a1d5-d32e-4064-8809-105f968f62b2)
 
 
+
+
+
+
+
+# What is hest abnormal even abt bro......🥀 /j
+
+<img width="1290" height="2796" alt="Untitled220_20251108180813" src="https://github.com/user-attachments/assets/43f15984-5f73-41d1-a877-89e4dfcc79c9" />
+
