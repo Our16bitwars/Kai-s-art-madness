@@ -76,3 +76,9 @@ I got bored idk </3
 
 <img width="1290" height="2796" alt="Untitled220_20251108180813" src="https://github.com/user-attachments/assets/43f15984-5f73-41d1-a877-89e4dfcc79c9" />
 
+
+
+# Ok
+
+<img width="689" height="551" alt="無題6450_20250708174827" src="https://github.com/user-attachments/assets/105fdd6c-a8ba-44ef-96d0-5e4054edcaca" />
+
