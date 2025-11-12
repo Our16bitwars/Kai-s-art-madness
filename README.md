@@ -1,3 +1,15 @@
+# Fursona ref for hika,,,
+(Im lazy to color plz its 1 am)
+
+<img width="689" height="559" alt="Adachi&#39;s ref sheet2_20251112013816" src="https://github.com/user-attachments/assets/fd008701-fe47-4180-b380-7c5124793bef" />
+
+
+
+
+
+
+
+
 # Gift for rams ^w^
 <img width="2250" height="3000" alt="Untitled211_20251102144944" src="https://github.com/user-attachments/assets/331ad6fe-0119-4258-b2c1-c1cc604d2014" />
 
