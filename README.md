@@ -94,3 +94,10 @@ I got bored idk </3
 
 <img width="689" height="551" alt="無題6450_20250708174827" src="https://github.com/user-attachments/assets/105fdd6c-a8ba-44ef-96d0-5e4054edcaca" />
 
+
+
+ # Hi
+
+
+ <img width="689" height="559" alt="Untitled226_20251114174924" src="https://github.com/user-attachments/assets/1d3cacfc-2016-44ce-ae94-b1b27b0f0dd7" />
+
