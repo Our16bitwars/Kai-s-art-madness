@@ -1,3 +1,14 @@
+
+# For mafu ok
+
+
+
+<img width="689" height="551" alt="6405 Sem Título_20251213154602" src="https://github.com/user-attachments/assets/19595f56-28c2-4d28-a879-77fe11975f1d" />
+
+
+
+
+
 # Fursona ref for hika,,,
 (Im lazy to color plz its 1 am)
 
