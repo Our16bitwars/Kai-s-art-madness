@@ -1,4 +1,21 @@
 
+# I cried while drawing ts
+
+
+
+
+
+
+<img width="689" height="559" alt="MACHINEGUN POEM DOLL - cosMo@Bousou-P3_20251224195725" src="https://github.com/user-attachments/assets/69724430-7a73-463d-bcb6-e063d9babe92" />
+
+
+
+
+
+
+
+
+
 # For mafu ok
 
 
