@@ -1,3 +1,12 @@
+# Ok
+
+
+
+<img width="689" height="559" alt="Untitled303_20260101230956" src="https://github.com/user-attachments/assets/60ba63bd-910e-4afc-8b20-0772a896c16f" />
+
+
+
+
 
 # I cried while drawing ts
 
